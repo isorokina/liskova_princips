@@ -1,0 +1,1 @@
+# liskova_princips
